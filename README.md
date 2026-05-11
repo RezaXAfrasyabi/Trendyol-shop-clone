@@ -1,0 +1,1 @@
+# Trandol-Shop-Clone
